@@ -1,0 +1,3 @@
+There have been multiple prison escapes where an inmate escapes by means of a helicopter. One of the earliest instances was the escape of Joel David Kaplan, nicknamed "Man Fan", on August 19, 1971, from the Santa Martha Acatitla in Mexico. Kaplan was a New York businessman who not only escaped the prison but eventually got out of Mexico and went on to write a book about his experience, The 10-Second Jailbreak.
+
+France has had more recorded helicopter escape attempts than any other country, with at least 11. One of the most notable French jail breaks occurred in 1986, when the wife of bank robber Michel Vaujour studied for months to learn how to fly a helicopter.
